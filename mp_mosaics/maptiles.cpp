@@ -90,4 +90,3 @@ MosaicCanvas* mapTiles(SourceImage const& img,
     //finished - return the canvas
     return canvas;
 }
-
