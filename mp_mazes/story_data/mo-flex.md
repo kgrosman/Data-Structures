@@ -1,1 +1,0 @@
-Mo walks up to Channy and pretends to start conversation so it does not seem intentional that he is wearing a Cornell shirt infront of someone who was rejected from the school. Little does Mo know, Channy is best friends with Lebron James, who stands in front of Mo with a Lakers shirt and wads of cash. Oh no! 
