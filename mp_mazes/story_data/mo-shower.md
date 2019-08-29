@@ -1,1 +1,0 @@
-Mo is excited to face his fears. He jumps in the shower and realizes that the water is too hotfor his liking, so he turns down the temperature. Unfortunately, it has been so long that he forgot which direction turns down the temperature and he accidentally turns it up. He burns the top of his head, and is unable to attend Princeton due to his injuries.
